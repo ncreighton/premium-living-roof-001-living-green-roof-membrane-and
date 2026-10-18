@@ -1,0 +1,2 @@
+# premium-living-roof-001-living-green-roof-membrane-and
+Tired of guessing which membrane was installed or when your substrate layer was last inspected? A single missed detail can mean leaks, plant loss, and costly repairs — this template locks in every critical record.  The Living Green Roof Membrane and Substrate Layer Log turns scattered notes into a single, reliable source of truth for your green roo
